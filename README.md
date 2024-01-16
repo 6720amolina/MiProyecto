@@ -1,1 +1,1 @@
-esto es una fucking mierda de fucking ordenador apestoso
+Esto esta escrito en el main
