@@ -1,1 +1,1 @@
-esto es una fucking mierda de fucking ordenador apestoso
+esto esta escrito desde la rama
